@@ -20,3 +20,6 @@ I think its 23:58
 
 
 lets settle for 11:45
+
+starting out at 17:14 
+
